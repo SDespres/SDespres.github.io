@@ -27,8 +27,6 @@ Working with my unique skill set, I plan to use the principles of data analysis 
 • Compiled supporting evidence and reviewed documentation for grant submission
 • Detail-oriented with extensive experience proofreading a wide variety of documents
 
-### [Click here to view full resume.](https://github.com/SDespres/SDespres.github.io/blob/main/sdespres%20website%20resume%20pdf.pdf)
-
 Contact me
 ssdespres@
 outlook.com
