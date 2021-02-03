@@ -28,6 +28,8 @@ Working with my unique skill set, I plan to use the principles of data analysis 
 • Detail-oriented with extensive experience proofreading a wide variety of documents
 
 
+### [Click here to view full resume](sdespres%20website%20resume%20pdf.pdf)
+
 ### Contact me
 ssdespres@
 outlook.com
