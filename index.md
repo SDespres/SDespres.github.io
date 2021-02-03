@@ -1,4 +1,7 @@
-# Suzie Despres
+
+
+### Objective:
+Working with my unique skill set, I plan to use the principles of data analysis and statistics to improve the organization with which I am working. 
 
 ### Technology:
 • Proficient with multiple databases and software including, but not limited to: Stata, MyMav (PeopleSoft), SPSS, Access-a-file, AWARE (caseload management), Microsoft Office, Access, Outlook, Word, Excel, and Powerpoint
