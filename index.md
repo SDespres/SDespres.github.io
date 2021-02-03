@@ -47,6 +47,8 @@ Working with my unique skill set, I plan to use the principles of data analysis 
 
 ### [Click here to view the original Bioengineering Graduate Student Guide conceived, designed, and edited by Suzie Despres. Most of this document was written by Suzie Despres.](Bioengineering Graduate Student Guide.pdf) 
 
+### [Click here to view my LinkedIn Profile](https://www.linkedin.com/in/sdespres)
+
 ### Contact me
 ssdespres@
 outlook.com
