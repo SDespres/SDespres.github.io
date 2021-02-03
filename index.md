@@ -1,4 +1,6 @@
 <img src=linkedinprofilepicsd square copy.jpg"width="100"height="100">
+                                                                     
+<img src=linkedinprofilepicsd square copy.jpg"width="50"height="50">
 
 ### Objective:
 Working with my unique skill set, I plan to use the principles of data analysis and statistics to improve the organization with which I am working. 
