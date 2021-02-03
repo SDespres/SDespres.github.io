@@ -38,7 +38,7 @@ Working with my unique skill set, I plan to use the principles of data analysis 
 ### [Click here to view Gallup Article Current Event Presentation Powerpoint](S Despres EPPS 6313 Current Event Gallup article copy.pdf)
 
 
-### [Click here to view Researh Proposal and Literature Review](Despres Suzie RP.pdf)
+### [Click here to view Research Proposal and Literature Review](Despres Suzie RP.pdf)
 
 
 ### [Click here to view Group Data Collection and Analysis Project Powerpoint Presentation](Investigating School-Work Balance final ppt.pdf)
