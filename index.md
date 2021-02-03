@@ -30,6 +30,23 @@ Working with my unique skill set, I plan to use the principles of data analysis 
 
 ### [Click here to view full resume](sdespres%20website%20resume%20pdf.pdf)
 
+### Examples of work below: 
+
+### [Click here to view Statistics and Data Group Project](Butcher, Despres, & Sedaghatfar Group Project Work and Happiness Report.pdf)
+
+
+### [Click here to view Gallup Article Current Event Presentation Powerpoint](S Despres EPPS 6313 Current Event Gallup article copy.pdf)
+
+
+### [Click here to view Researh Proposal and Literature Review](Despres Suzie RP.pdf)
+
+
+### [Click here to view Group Data Collection and Analysis Project Powerpoint Presentation](Investigating School-Work Balance final ppt.pdf)
+### [Click here to view accompanying Report for Group Data Collection and Analysis Project](TEAM 3 Group Project.pdf)
+
+
+### [Click here to view the original Bioengineering Graduate Student Guide conceived, designed, and edited by Suzie Despres. Most of this document was written by Suzie Despres.](Bioengineering Graduate Student Guide.pdf) 
+
 ### Contact me
 ssdespres@
 outlook.com
