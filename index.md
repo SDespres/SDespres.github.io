@@ -35,7 +35,7 @@ Working with my unique skill set, I plan to use the principles of data analysis 
 ### [Click here to view Statistics and Data Group Project](Butcher, Despres, & Sedaghatfar Group Project Work and Happiness Report.pdf)
 
 
-### [Click here to view Gallup Article Current Event Presentation Powerpoint](S Despres EPPS 6313 Current Event Gallup article copy.pdf)
+### [Click here to view Gallup Article Current Event Presentation Powerpoint](Current Event ppt.pdf)
 
 
 ### [Click here to view Research Proposal and Literature Review](Despres Suzie RP.pdf)
