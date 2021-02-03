@@ -1,4 +1,4 @@
-
+![Professional Picture of Suzie Despres](linkedinprofilepicsd square copy.jpg)
 
 ### Objective:
 Working with my unique skill set, I plan to use the principles of data analysis and statistics to improve the organization with which I am working. 
